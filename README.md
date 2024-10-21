@@ -38,4 +38,4 @@ I’m eager to get more involved in open source, and I’d love to collaborate o
 
 ## 🌍 Connect with Me
 Feel free to reach out via email:  
-📧 [your-email-placeholder@example.com](mailto:your-email-placeholder@example.com)
+📧 [skadoot-xp@proton.me](mailto:skadoot-xp@proton.me)
